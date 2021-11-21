@@ -1,5 +1,5 @@
 My name is aras.
 
 
-Its nice meeting you. Its an honour. :)
+Its nice meeting you.
 
